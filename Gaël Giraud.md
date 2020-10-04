@@ -8,7 +8,7 @@ GG: je suis l'ancien économiste en chef de l'agence française de développemen
 
 TV: je vais vous poser une question est ce que le vatican est prêt appliquez votre prospective est ce que le vatican a fait un geste par rapport à l'anthropocène main on à feu un ami jacques blamont qui était parti jusqu'au vatican pour dire voilà vous êtes les maîtres de la propagande depuis 2000 ans est ce que vous pouvez faire passer un message à vos ouailles moi en tant que biographe officiel de galilée est-ce que vous pouvez passer un message à vos oreilles pour ralentir la consommation de viande déjà ce genre de petit geste est ce que vous pensez que le vatican est prêt à rentrer dans l'ère du 21ème siècle 
 
-* TK 
+* TK (pas le temp de finir, des volontaires?)
 
 GG: alors le vatican c'est
 un objet complexe c'est une grande
