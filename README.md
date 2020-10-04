@@ -8,7 +8,13 @@ Salut, ceci est un espace libre où tu peux facilement devenir contributeur. Tu 
   * Groupe FB: Pas encore... Si on est pas 150 personnes, cela ne servira pas à grand chose semble-t-il? Tu veux le faire?
 * Medium: https://medium.com/datagueule 
   * Tu peux devenir Writer (auteur souhaitant être relu avant publication) ou directement Editor (relecteur et publicateur)
+* https://twitter.com/datagueule_ch (ah oui aussi, bon des bénévoles pour le gérer?)
   
 ## Github co-admin wanted
 Je ne suis pas immortel... Merci de venir me rejoindre ici pour créer un bien commun persistant dans le temp.
 * http://callme.kotte.net
+
+## Et en plus, je suis distrait...
+Il y avait déjà un espace de partage:
+* https://github.com/CloudReady-ch/datagueule
+
