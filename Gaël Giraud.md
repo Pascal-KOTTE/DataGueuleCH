@@ -1,6 +1,9 @@
 # Gaël Giraud
 
 ## Thinkerview 2020, transcript (brut)
+* Discussion sur Linkedin: https://www.linkedin.com/posts/ga%C3%ABl-giraud-69363930_chaos-%C3%A9conomique-blanchiment-bancaire-activity-6716045711818944512-uTC9
+* Youtube: https://youtu.be/-8j8xgkZxuE
+  * Version **Debunked sur CaptainFact**: https://captainfact.io/videos/gLb2
 
 TV: Gaël Giraud bonsoir nous vous recevons pour une chaîne internet qui s'appelle thinkerview, nous sommes en direct est-ce que vous pouvez vous présenter succinctement 
 
